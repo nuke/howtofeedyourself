@@ -1,4 +1,4 @@
-## How To Feed Yourself
+## How To Feed Yourself 
 This guide will be a general how-to for bachelors who want to make something simple and tasty for themselves on a regular basis. I'll be drawing on my years of experience in professional and personal kitchens, as well as the following resources:
 
 * _Best Recipe Cookbook_ by America's Test Kitchen
